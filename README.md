@@ -5,4 +5,5 @@ Fortnite Chapter 2 [Remix]
 
 
 Downloads 
-[OG] 27.11 - https://drive.google.com/drive/folders/1wEUzAbDrLIgwLucfOR7wTbRFvaV13e8O?usp=drive_link
+[OG] 27.11 -
+[Remix} 32.11 - https://drive.google.com/drive/folders/1wEUzAbDrLIgwLucfOR7wTbRFvaV13e8O?usp=drive_link
