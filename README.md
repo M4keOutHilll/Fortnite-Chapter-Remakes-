@@ -10,4 +10,5 @@ Downloads
 
 [Remix} 32.11 - https://drive.google.com/drive/folders/1wEUzAbDrLIgwLucfOR7wTbRFvaV13e8O?usp=drive_link
 
-Also It might tell You to request for access just request and ill accept it as soon as possible 
+Also It might tell You to request for access just send me a dm on discord @m4keouthillll
+
